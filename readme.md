@@ -1,1 +1,0 @@
-https://AKutrapali.github.io/The_yalow_2
